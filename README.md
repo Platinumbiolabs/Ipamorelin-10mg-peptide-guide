@@ -24,6 +24,7 @@ Research involving Ipamorelin has explored several areas:
 It is important to distinguish preliminary research findings from established clinical outcomes. Ipamorelin is not an FDA-approved treatment.
 
 Product Information – Ipamorelin 10mg
+
 https://platinumbiolabs.com/dosing/ipa-10
 
 Product: Ipamorelin
